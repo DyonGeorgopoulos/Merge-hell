@@ -1,4 +1,7 @@
 # Merge-hell
-glhf.
 
+glhf.
 shitake mushrooms are people tooooooooo!!
+tom here
+Jack was here
+
